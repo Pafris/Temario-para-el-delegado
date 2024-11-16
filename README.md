@@ -1,0 +1,1 @@
+# Temario-para-el-delegado
